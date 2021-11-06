@@ -1,0 +1,1 @@
+# Automatic-Approval-of-Eligible-Projects-submitted-on-DonorsChoose.org-
